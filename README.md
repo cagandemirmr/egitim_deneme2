@@ -1,0 +1,1 @@
+# egitim_deneme2
